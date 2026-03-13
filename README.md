@@ -1,2 +1,2 @@
 # GTA-VI
-instale GTA VI para android, é confiável!!!!!
+instale o acesso antecipado do GTA VI para android, é confiável!!!!!
